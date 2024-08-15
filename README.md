@@ -1,1 +1,0 @@
-# Vorprojekt-Gewinnverteilung
